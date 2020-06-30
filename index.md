@@ -7,3 +7,5 @@ Ein erfolgreicher Boddybuilder, Schauspieler, Governeur und Vater.
 * Sport
 * Zigarren
 * Waffen
+
+> I'll be back.
